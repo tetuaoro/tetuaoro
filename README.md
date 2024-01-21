@@ -1,4 +1,4 @@
-# Ia ora na, I'm Tetuaoro
+# 'Ia ora na, I'm Tetuaoro
 
 ### 🔠 Favorites languages
 
